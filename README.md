@@ -12,6 +12,5 @@ I'm always open to discussing new projects, ideas, or opportunities. Feel free t
 
 - **Email:** [nilaxgajjar.work@gmail.com](mailto:nilaxgajjar.work@gmail.com)
 - **LinkedIn:** [linkedin.com/in/nilaxgajjar](https://www.linkedin.com/in/nilaxgajjar/)
-- **Portfolio:** [bold.pro/my/nilaxgajjar](https://bold.pro/my/nilaxgajjar/)
 
 Let's build something amazing together!
